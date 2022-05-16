@@ -9,5 +9,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... anything
 - 📫 How to reach me: ... [LinkedIn](https://www.linkedin.com/in/tolutheanalyst)
 - 😄 Pronouns: ... she/her
-- ⚡ Fun fact: ... I love cake
--->
+- ⚡ Fun fact: ... I love a good applie pie
+
