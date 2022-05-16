@@ -1,7 +1,6 @@
 ### Here is what I'm working on 👋
 
 
-Here are some ideas to get you started:
 
 - 🔭 I’m currently working with ... people analytics, healthcare, and sustainability data projects 
 - 🌱 I’m currently learning ... forecasting and workflow automation
