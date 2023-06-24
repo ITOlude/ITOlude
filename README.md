@@ -7,6 +7,6 @@
 - 👯 I’m looking to collaborate on data journalism and my interest projects above
 - 💬 Ask me about productivity hacks
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/itotheanalyst)
-- 😄 Pronouns: ... she/her
-- ⚡ Fun fact: ... I've studied 5 spoken languages and love to learn
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I've studied 5 spoken languages and proudly wear a lifelong learner hat
 
