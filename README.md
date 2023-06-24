@@ -8,5 +8,5 @@
 - 💬 Ask me about productivity hacks
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/itotheanalyst)
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I've studied 5 spoken languages and proudly wear a lifelong learner hat
+- ⚡ Fun fact: I've studied 5 spoken languages
 
